@@ -38,6 +38,6 @@ Open to NOC, network technician, network engineering, data center, and network d
 
 ## Contact
 
-- LinkedIn: https://www.linkedin.com/in/roman-schroeder-856188410/
+- LinkedIn: https://www.linkedin.com/in/roman-schroeder101
 - Email: schroedermroman@gmail.com
 - Location: Kyle, TX
